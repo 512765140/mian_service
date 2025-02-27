@@ -4,4 +4,4 @@
 10年海外项目开发经验、带项目经验，擅长从0到1；
 专业团队服务，可加入团队；
 
-如有兴趣请咨询 QQ.1590916590 ， TG：guofucheng668
+如有兴趣请咨询 Email：aalideo@163.com ， TG：guofucheng668
